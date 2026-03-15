@@ -7,7 +7,7 @@
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ**8teen**! ㅤ bruce  ㅤ ♡  ㅤ leon irl. 
 
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ 𝑚y interests : <a href='https://postimg.cc/D8F140tC' target='_blank'><img src='https://i.postimg.cc/D8F140tC/F8E0B1FD-0AB6-4C91-807B-09CDCF03F8B7.png' border='0' alt='F8E0B1FD-0AB6-4C91-807B-09CDCF03F8B7'></a>
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![](https://pix.crd.co/assets/images/gallery21/dd907d80.gif?v=1466ccea)ㅤㅤ 𝑚y interests : <a href='https://postimg.cc/D8F140tC' target='_blank'><img src='https://i.postimg.cc/D8F140tC/F8E0B1FD-0AB6-4C91-807B-09CDCF03F8B7.png' border='0' alt='F8E0B1FD-0AB6-4C91-807B-09CDCF03F8B7'></a>
 
 ㅤㅤㅤㅤㅤㅤmarvel, resident evil, identity v ( id 19290759 )
 
@@ -20,3 +20,7 @@
 ㅤㅤㅤㅤㅤㅤdevil may cry, silent hill, cookie run, the boys
 
 ㅤㅤㅤㅤㅤㅤgen v, the hundred line, alien stage, 19 days.
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
+
+ㅤㅤㅤㅤㅤㅤㅤ![](https://64.media.tumblr.com/14755bb797360a7e9eb50be8f25f3968/ed635b0ff4150dbd-8c/s250x400/cc441a473ce1f64087279a81126b06778d6dd8ee.pnj)
