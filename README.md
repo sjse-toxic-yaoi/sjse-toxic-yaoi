@@ -8,6 +8,6 @@
 
  ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<a href='https://postimg.cc/Yh4V8TZt' target='_blank'><img src='https://i.postimg.cc/Yh4V8TZt/ffff.png' border='0' alt='ffff'></a> ㅤㅤㅤ꒱ ﹫ 𝑟ench or 𝑟enya ㅤㅤㅤ![](https://pix.crd.co/assets/images/gallery21/12bf090b.png?v=1466ccea) ㅤㅤㅤshe/her
 
- ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ**18 y.o.** ! ㅤ bruce ㅤ♡ㅤㅤleon irl. 
+ ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ**18 y.o.** ! ㅤ bruce wayne ㅤ♡ㅤㅤleon kennedy irl. 
 
 
