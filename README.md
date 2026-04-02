@@ -10,6 +10,6 @@
 
  ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤㅤ**18 y.o.** *!* ㅤ *b*ruce wayne ㅤ♡ㅤㅤ*l*eon kennedy irl.
 
-  ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤ꒰ more info in *[tgph](https://telegra.ph/meememwmwmwm-09-12)* . . .ㅤㅤㅤㅤㅤㅤ ![](https://64.media.tumblr.com/3c4585c98c0f5aaf4ce521bede2e794e/c5b0f8aa7940a508-71/s250x400/7d23db70616537d348b1f3bcec55c1326de5d187.gifv)
+  ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤ꒰ more info in *[tgph](https://telegra.ph/meememwmwmwm-09-12)* . . .ㅤㅤㅤ![](https://64.media.tumblr.com/3c4585c98c0f5aaf4ce521bede2e794e/c5b0f8aa7940a508-71/s250x400/7d23db70616537d348b1f3bcec55c1326de5d187.gifv)
 
 
